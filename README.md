@@ -1,0 +1,2 @@
+# premium-kiritsuke-knife-001-kiritsuke-knife-forging-japa
+Tired of generic knife tutorials that ignore the unique geometry of a kiritsuke? Step into your virtual forge and master the exact blade profile that separates a true chef's tool from a wall hanger.  This lab‑based guide demystifies the forging process specifically for the Japanese kiritsuke blade, combining traditional techniques with modern metal
